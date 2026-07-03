@@ -1,1 +1,1 @@
-# RatelyGDPS-site
+# RatelyGDPS-site IF YOU FORK THIS SITE YOU MUST CREDIT ME
